@@ -1,1 +1,0 @@
-App4brides is made for Nigerian brides. Instuctions are given within the app for guidelines. Thank you. Enjoy usage. Visit our website www.feminineedge to find out more
